@@ -1,0 +1,1 @@
+traditionally a italian cuisine recipe but very well popular all over the world. there are several variations and varieties of pizza recipe. however this recipe is simple veg pizza recipe with yeast and baked in oven. the toppings can be changed as per the preference 
